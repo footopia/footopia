@@ -1,3 +1,3 @@
 ### Hello citizens of Footopia 👋 
 
-Rules:
+The Constitution: 
